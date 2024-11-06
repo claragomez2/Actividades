@@ -1,1 +1,1 @@
-# Actividades estadística
+# Actividades
